@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Velkaandhan let me know if u need anything!!
+- 👋 Hi, I’m @Vetri 
  
 <!---
 Velkaandhan/Velkaandhan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
